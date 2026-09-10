@@ -1,0 +1,1 @@
+# betternet-macos.github.io
